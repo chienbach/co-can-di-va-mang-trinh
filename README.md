@@ -1,7 +1,6 @@
 <p>
 	Có nên đi vá màng trinh không? Dịch vụ vá màng trinh hiện đang được không ít chị em quan tâm bởi nó giúp chị em lấy lại sự tự tin và nắm duy trì hạnh phúc gia đình. Trước sự thật rằng có một vài chị em vì cái ngàn vàng đã mất mà rơi vào tình thế không dễ dàng xử, thậm chí bất hạnh và đau khổ, bị chồng và gia đình nhà chồng coi khinh mà nhiều chị em đã bận tâm có nên đi vá màng trinh không.</p>
 <p>
-	phòng khám phụ khoa Thái Hà địa chỉ vá màng trinh uy tín ( <a href="http://phongkhamthaiha.com/dia-chi-phong-kham-phu-khoa-uy-tin-tot-tai-ha-noi-102134.html">http://phongkhamthaiha.com/dia-chi-phong-kham-phu-khoa-uy-tin-tot-tai-ha-noi-102134.html</a> )</p>
 <p>
 	<br />
 	Vá màng trinh là một phẫu thuật y khoa nhằm mục đích tái tạo lại màng trinh đã rách, giúp vùng kín của các chị em trở về trạng thái nguyên vẹn như Mới đầu.<br />
@@ -33,4 +32,4 @@
 <p>
 	Vá màng trinh giúp cho xua tan nỗi lo sợ và nắm giữ hạnh phúc tương lai, đây là nhu cầu chính đáng của hầu hết các nữ giới. Nếu bạn muốn khảo sát cặn kẽ hơn về câu hỏi có cần đi vá màng trinh không hoặc muốn câu trả lời thêm, hãy nhấp chuột vào nút “Bác sĩ tư vấn” dưới đây để được trò chuyện trực tuyến với các bác sĩ tại bệnh viện phụ khoa Thái Hà.</p>
 <p>
-	Nguồn: h<a href="http://ttp://phongkhamthaiha.com/co-nen-di-va-mang-trinh-hay-khong-102235.html">ttp://phongkhamthaiha.com/co-nen-di-va-mang-trinh-hay-khong-102235.html</a></p>
+
